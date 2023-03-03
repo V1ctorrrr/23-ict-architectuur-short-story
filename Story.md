@@ -1,3 +1,5 @@
 #school is very fun
-\n Auteur: *Victor*
-\n I love school
+
+Auteur: *Victor*
+
+I love school

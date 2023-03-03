@@ -13,3 +13,5 @@ When the ambulance arrived, Sarah was rushed to the hospital with a broken arm a
 In the days that followed, Sarah couldn't stop replaying the accident in her mind. She kept thinking about how close she had come to death and how easily it could have been avoided if she had been paying more attention to the road.
 
 From that day forward, Sarah vowed to be more careful when driving. She realized that a moment of distraction or carelessness could have catastrophic consequences, and she didn't want to risk her life or anyone else's. The accident had been a wake-up call, and she was determined to learn from it and make better choices in the future.
+
+![tree](./tree-736885_480.jpg)

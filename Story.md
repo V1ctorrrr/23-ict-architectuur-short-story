@@ -14,4 +14,3 @@ In the days that followed, Sarah couldn't stop replaying the accident in her min
 
 From that day forward, Sarah vowed to be more careful when driving. She realized that a moment of distraction or carelessness could have catastrophic consequences, and she didn't want to risk her life or anyone else's. The accident had been a wake-up call, and she was determined to learn from it and make better choices in the future.
 
-![image](https://user-images.githubusercontent.com/91462950/222737330-4164c173-713f-4163-aa6f-d4db2142123d.png)

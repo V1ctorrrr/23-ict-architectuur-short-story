@@ -1,4 +1,4 @@
-# school is very fun
+# Life lessons
 
 Auteur: *Victor*
 
